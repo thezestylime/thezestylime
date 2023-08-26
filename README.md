@@ -1,6 +1,6 @@
 - 👋 Hi, I’m emil
 - 👀 I’m interested in rats
-- 🌱 I’m currently learning blender
+- 🌱 I’m currently learning the difficulties of life
 - 💞️ I’m looking to collaborate on Crazy Bowl
 - 📫 How to reach me: yell really loud
 
